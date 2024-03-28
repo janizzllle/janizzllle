@@ -1,4 +1,4 @@
-### Hi there, it's Janizzllle here ✌🏼
+### Hi there, it's Jana here ✌🏼
 
 So nice to have you here!
 
