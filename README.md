@@ -1,4 +1,10 @@
-### Hi there 👋
+### Hi there ✌🏼
+
+So nice to have you here!
+
+I recently graduated from a full-stack development Bootcamp with CodeOp and am SO READY to get started! 
+Have a look at my profile and message me on LinkedIn if you want to see more of my work. 
+
 
 <!--
 **janizzllle/janizzllle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
