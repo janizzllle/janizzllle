@@ -1,9 +1,9 @@
-### Hi there ✌🏼
+### Hi there, it's Janizzllle here ✌🏼
 
 So nice to have you here!
 
 I recently graduated from a full-stack development Bootcamp with CodeOp and am SO READY to get started! 
-Have a look at my profile and message me on <a href="https://linkedin.com/in/janaburri">LinkedIn</a> if you want to see more of my work. 
+Have a look at my profile and message me on <a href="https://linkedin.com/in/janaburri">LinkedIn</a> if you want to see or or know more about my work. 
 
 
 <!--
